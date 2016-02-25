@@ -61,3 +61,8 @@ I actually just wanted an excuse to draw an ASCII squid.
 Stop worrying about licensing and go have fun. There's a squid up there, for goodness' sake!
 
 (Licensed under the GPL, because it's a derivative work of WP, natch.)
+
+
+## P.S.
+
+You're fantastic. :heart:
